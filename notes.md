@@ -1,0 +1,1 @@
+ I went to sarum acedemy. i am studying physics, software design, and creative media, my pass time is playing games and studying. in my free time i mainly either watch various videos or play mostly RPGs'
