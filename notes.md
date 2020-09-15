@@ -1,1 +1,2 @@
-test
+notes on myself, i like things and do stuff and extramly bad at talking about my self in a biographicle form so i will write a sertain amount of stuff and pretent that this is an accurate account of myself and everything that i am. 
+My name is Ben Major born on november 6th 2003. i like to play dumb sometimes even though i accualy know what im talking about because it is always fun to give other people the opterunity to be in the perferbial spotlight, yup, thats just the kind of person that i am, YAY, Sarcasm
